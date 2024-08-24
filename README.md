@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on ...
 - 📫 you can reach me via my email r8617556@gmail.com
 - i work us hours 
-
+- you can check me out on upwork https://www.upwork.com/freelancers/~01266b72154edaae0b
